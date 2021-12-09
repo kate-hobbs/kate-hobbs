@@ -8,4 +8,4 @@ Sometimes that means creating an entire brand strategy from colour palette to ty
 
 The rest of the time, you will find me outside in the sun (I live by the beach in Sydney!), going for a run or mountain bike ride, playing old school Pokemon, or annoying a loved one.
 
-💬 To get in touch, please contact me through my business site [katehobbs.com.au](katehobbs.com.au).
+💬 To get in touch, please contact me through my business site [katehobbs.com.au](https://katehobbs.com.au).
